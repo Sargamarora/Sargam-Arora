@@ -5,4 +5,4 @@
 🌱 Passionate about tech, creativity & growth
 
 📫 sargamarora2003@gmail.com  
-🔗 [LinkedIn](https://www.linkedin.com/in/YOUR-USERNAME)
+🔗 https://www.linkedin.com/in/sargam-arora-8a914020a
